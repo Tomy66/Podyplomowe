@@ -1,3 +1,3 @@
 Nowy projekt na laboratoria
 
-![To jest test na laboratoria](https://twojekarteczki.pl/wp-content/uploads/2022/12/Polish_20221228_125035082.jpg)
+![To jest test na laboratoria](https://picturesdown.com/wp-content/uploads/2022/09/obrazek-milego-dnia-smacznej-kawusi-2.jpg)
